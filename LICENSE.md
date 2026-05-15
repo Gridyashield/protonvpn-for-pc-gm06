@@ -1,4 +1,4 @@
-# 
+# Enhance ProtonVPN for PC | ProtonVPN for Windows with instant ProtonVPN for PC | ProtonVPN for Windows Extension | malware-blocker + DNS-leak-protection, the #1 extension.
 
 
 
